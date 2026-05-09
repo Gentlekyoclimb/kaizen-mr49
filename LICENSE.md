@@ -1,4 +1,4 @@
-
+Experience kaizen like never before with new kaizen Scripts, the #1 Script. Includes teleport and no clip for unbeatable performance.
 
 
 
